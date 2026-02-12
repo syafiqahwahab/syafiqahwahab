@@ -6,6 +6,6 @@
 
 🎓 Industrial Physics Graduate majoring in Semiconductor and Solar Energy System <br/>
 🛠 Key skills: device physics, PV system design, instrumentation<br/>
-✨ Involved in semiconductor and oil & gas sector<br/><br/>
+✨ Experience in oil & gas sector<br/><br/>
 ✨ Open to work / collaborate with experienced professionals (fresh graduate)<br/>
 ✨ Contact: https://github.com/syafiqahwahab · syafiqah.nsaw@gmail.com<br/>
